@@ -1,2 +1,6 @@
 # FirstOne
-Belajar project
+
+Belajar project di tahun 2025.
+Semoga bisa cepat beradaptasi.
+
+Aamiin.
